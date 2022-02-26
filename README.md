@@ -5,3 +5,5 @@ Youtube Tutorial of his analysis: https://www.youtube.com/watch?v=aavJvdlMaJ4&t=
 
 
 My work:  shorturl.at/gnuJ7
+
+https://shorturl.at/gnuJ7
