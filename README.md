@@ -5,4 +5,4 @@ Youtube Tutorial of his analysis: https://www.youtube.com/watch?v=aavJvdlMaJ4&t=
 
 
 My work: 
-https://shorturl.at/gnuJ7
+https://bit.ly/3sk6deC
